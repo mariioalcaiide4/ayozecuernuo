@@ -1,2 +1,2 @@
 # ayozecuernuo
-Ayoze cuernuo ai te partas el cruzao
+Ayoze cuernuo ai te partas el cruzao chivato
